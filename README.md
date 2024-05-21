@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @owensilj
+- 👋 Hi, I’m @owensil
 - 📫 Contact me using the email on my profile page
